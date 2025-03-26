@@ -3,6 +3,14 @@
 
 - 🌱 I’m currently learning **New coding Languages**
 
+- gamer in my free time
+
+- coding is something i like working on finding problems or making new ones :P
+
+- like to learn
+
+- i can work in consert with my pers or alone
+
 - 📫 How to reach me **rdrgzfermin@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
