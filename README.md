@@ -3,13 +3,13 @@
 
 - 🌱 I’m currently learning **New coding Languages**
 
-- gamer in my free time
+- Gamer in my free time
 
-- coding is something i like working on finding problems or making new ones :P
+- Coding is something i like working on finding problems or making new ones :P
 
 - like to learn
 
-- i can work in consert with my pers or alone
+- I can work in consert with my pers or alone
 
 - 📫 How to reach me **rdrgzfermin@gmail.com**
 
