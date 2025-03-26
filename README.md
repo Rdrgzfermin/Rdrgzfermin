@@ -5,7 +5,7 @@
 
 - Gamer in my free time
 
-- Coding is something i like working on finding problems or making new ones :P
+- Coding is something i like working on, finding problems or making new ones :P
 
 - like to learn
 
